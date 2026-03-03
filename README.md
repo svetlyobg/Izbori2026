@@ -72,6 +72,15 @@
 
 ## Габрово
 
+[Избори за Народно събрание 19 април 2026 г.](https://gabrovo.bg/bg/page/1783)
+
+[Заповед за образуване на избирателни секции на територията на Община Габрово](https://gabrovo.bg/files/izbori202604/Zapoved%20sekcii%202026%20-1.pdf)
+
+[Приложение 1](https://gabrovo.bg/files/izbori202604/Obhvat%20sekcii.pdf)
+
+[Заповед за определяне местата за обявяване на предварителните избирателните списъци](https://gabrovo.bg/files/izbori202604/Zapoved%20spisyci.pdf)
+
+
 ## Севлиево
 
 [Информация от Община Севлиево](https://www.sevlievo.bg/bg/informatsiya-ot-obshtina-sevlievo)
