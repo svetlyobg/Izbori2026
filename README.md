@@ -69,6 +69,9 @@ __4 Март 2026__ - Не е предвиден бюджет за храна и
 1. [За избирателите](https://www.cik.bg/bg/ns19.04.2026/voters)
 2. [Адреси на избирателните секции](https://www.cik.bg/upload/272218/Adresi-Izb-Sekcii%282%29.xlsx)
 3. [Брой избиратели в предварителните списъци за изборите за Народно събрание 19 април 2026 г.](https://www.cik.bg/upload/272219/obsht_broi_sekcii_izbirateli_predvaritelni_predsrochni-%D0%9D%D0%A1-19-04-2026.xlsx)
+4. [Контакти на РИК](https://www.cik.bg/bg/ns19.04.2026/rik)
+5. [Решения на РИК](https://www.cik.bg/bg/decisions)
+6. [Избори за Народно събрание 19 април 2026 г.](https://www.cik.bg/bg/ns19.04.2026)
 
 # Материали
 
