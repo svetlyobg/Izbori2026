@@ -8,7 +8,7 @@
 
 __5 Март 2026__ - [Севлиево - Покана за консултации за състав на секционни избирателни комисии](https://www.sevlievo.bg/bg/informatsiya-ot-obshtina-sevlievo/pokana-za-konsultatsii-za-sastav-na-sektsionni-izbiratelni-komisii)
 
-[Покана](https://www.sevlievo.bg/uploads/posts/2026/78c0c0601d78294493e2d52f56c7f849.pdf)
+[Севлиево - Покана](https://www.sevlievo.bg/uploads/posts/2026/78c0c0601d78294493e2d52f56c7f849.pdf)
 
 __4 Март 2026__ - РЕШЕНИЕ № 4532-НС [ОТНОСНО: назначаване съставите на секционните избирателни комисии в страната за изборите за народни представители на 19 април 2026 г.](https://www.cik.bg/bg/decisions/4532/2026-03-04)
 
