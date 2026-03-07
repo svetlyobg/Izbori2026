@@ -1,5 +1,7 @@
 # Новини
 
+[РЕШЕНИЕ № 4542-НС](https://www.cik.bg/bg/decisions/4542/2026-03-04)
+
 [РЕШЕНИЕ № 13-НС - състав СИК Трявна](https://rik07.cik.bg/ns202604/decisions/13/2026-03-06)
 
 __5 Март 2026__ - [Покана за консултации за състав на секционни избирателни комисии](https://www.sevlievo.bg/bg/informatsiya-ot-obshtina-sevlievo/pokana-za-konsultatsii-za-sastav-na-sektsionni-izbiratelni-komisii)
