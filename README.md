@@ -108,47 +108,47 @@
 
 ## Севлиево
 
-[Информация от Община Севлиево](https://www.sevlievo.bg/bg/informatsiya-ot-obshtina-sevlievo)
+- [Информация от Община Севлиево](https://www.sevlievo.bg/bg/informatsiya-ot-obshtina-sevlievo)
 
 ### Заповед за образуване на избирателни секции за произвеждане на избори за Народно събрание на 19 април 2026 г.
 
-[Заповед за образуване на секции](https://www.sevlievo.bg/uploads/posts/2026/17b1dd0e1615ca751000ea455bcd0d09.pdf)
+- [Заповед за образуване на секции](https://www.sevlievo.bg/uploads/posts/2026/17b1dd0e1615ca751000ea455bcd0d09.pdf)
 
-[Приложение № 1](https://www.sevlievo.bg/uploads/posts/2026/74fabdc6b9f9dbfeccb3489058109244.pdf)
+- [Приложение № 1](https://www.sevlievo.bg/uploads/posts/2026/74fabdc6b9f9dbfeccb3489058109244.pdf)
 
 ### Заповед за определяне на места за обявяване на предварителните избирателни списъци за произвеждането на изборите за народни представители
 
-[Заповед №156 от 26.02.2026 г.](https://www.sevlievo.bg/uploads/posts/2026/497ea6143dbe16c37432ddcce00d0350.pdf)
+- [Заповед №156 от 26.02.2026 г.](https://www.sevlievo.bg/uploads/posts/2026/497ea6143dbe16c37432ddcce00d0350.pdf)
 
-[Приложение № 1](https://www.sevlievo.bg/uploads/posts/2026/de2720d0b9a194a5274047afb1702e40.pdf)
+- [Приложение № 1](https://www.sevlievo.bg/uploads/posts/2026/de2720d0b9a194a5274047afb1702e40.pdf)
 
 
 ## Дряново
 
-[Избори за народни представители в 52-ото Народно събрание на 19.04.2026 г.](https://www.dryanovo.bg/bg/category/342/izbori-za-narodni-predstaviteli-v-52-oto-narodno-sybranie-na-19-04-2026-g)
+- [Избори за народни представители в 52-ото Народно събрание на 19.04.2026 г.](https://www.dryanovo.bg/bg/category/342/izbori-za-narodni-predstaviteli-v-52-oto-narodno-sybranie-na-19-04-2026-g)
 
-[Указ № 58/19.02.2026 г. (ДВ бр. 19/19.02.2026 г.) за насрочване на избори за Народно събрание на 19.04.2026 г.](https://www.dryanovo.bg/uploads/docs/9479_bg_DV19_19.02.2026_ukazi58_59.pdf)
+- [Указ № 58/19.02.2026 г. (ДВ бр. 19/19.02.2026 г.) за насрочване на избори за Народно събрание на 19.04.2026 г.](https://www.dryanovo.bg/uploads/docs/9479_bg_DV19_19.02.2026_ukazi58_59.pdf)
 
-[Хронограма за изборите за Народно събрание на 19.04.2026 г.](https://view.officeapps.live.com/op/view.aspx?src=https%3A%2F%2Fwww.dryanovo.bg%2Fuploads%2Fdocs%2F9480_bg_r4435-%25D0%259D%25D0%25A1-pril-Hronograma-19.04.2026.doc&wdOrigin=BROWSELINK)
+- [Хронограма за изборите за Народно събрание на 19.04.2026 г.](https://view.officeapps.live.com/op/view.aspx?src=https%3A%2F%2Fwww.dryanovo.bg%2Fuploads%2Fdocs%2F9480_bg_r4435-%25D0%259D%25D0%25A1-pril-Hronograma-19.04.2026.doc&wdOrigin=BROWSELINK)
 
-[Заповед № 77/23.02.2026 г. за образуване на избирателни секции на територията на Община Дряново - 1](https://www.dryanovo.bg/uploads/docs/9488_bg_%D0%97%D0%B0%D0%BF%D0%BE%D0%B2%D0%B5%D0%B4%20%D0%B7%D0%B0%20%D0%BE%D0%B1%D1%80%D0%B0%D0%B7%D1%83%D0%B2%D0%B0%D0%BD%D0%B5%20%D0%BD%D0%B0%20%D1%81%D0%B5%D0%BA%D1%86%D0%B8%D0%B8_1.pdf)
+- [Заповед № 77/23.02.2026 г. за образуване на избирателни секции на територията на Община Дряново - 1](https://www.dryanovo.bg/uploads/docs/9488_bg_%D0%97%D0%B0%D0%BF%D0%BE%D0%B2%D0%B5%D0%B4%20%D0%B7%D0%B0%20%D0%BE%D0%B1%D1%80%D0%B0%D0%B7%D1%83%D0%B2%D0%B0%D0%BD%D0%B5%20%D0%BD%D0%B0%20%D1%81%D0%B5%D0%BA%D1%86%D0%B8%D0%B8_1.pdf)
 
-[Заповед № 77/23.02.2026 г. за образуване на избирателни секции на територията на Община Дряново - 2](https://www.dryanovo.bg/uploads/docs/9489_bg_%D0%9F%D1%80%D0%B8%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5%201%20%D0%BA%D1%8A%D0%BC%20%D0%97%D0%B0%D0%BF%D0%BE%D0%B2%D0%B5%D0%B4%2077%20%D0%BE%D1%82%2023.02.2026%20%D0%B3..pdf)
+- [Заповед № 77/23.02.2026 г. за образуване на избирателни секции на територията на Община Дряново - 2](https://www.dryanovo.bg/uploads/docs/9489_bg_%D0%9F%D1%80%D0%B8%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5%201%20%D0%BA%D1%8A%D0%BC%20%D0%97%D0%B0%D0%BF%D0%BE%D0%B2%D0%B5%D0%B4%2077%20%D0%BE%D1%82%2023.02.2026%20%D0%B3..pdf)
 
-[Заповед № 87/02.03.2026 г. за определяне на местата за обявяване на предварителните избирателни списъци - 1 ](https://www.dryanovo.bg/uploads/docs/9496_bg_%D0%97%D0%B0%D0%BF%D0%BE%D0%B2%D0%B5%D0%B4_%D0%9C%D0%B5%D1%81%D1%82%D0%B0%20%D0%B7%D0%B0%20%D0%BE%D0%B1%D1%8F%D0%B2%D1%8F%D0%B2%D0%B0%D0%BD%D0%B5%20%D0%BD%D0%B0%20%D0%BF%D1%80%D0%B5%D0%B4%D0%B2%D0%B0%D1%80%D0%B8%D1%82%D0%B5%D0%BB%D0%BD%D0%B8%20%D1%81%D0%BF%D0%B8%D1%81%D1%8A%D1%86%D0%B8.pdf)
+- [Заповед № 87/02.03.2026 г. за определяне на местата за обявяване на предварителните избирателни списъци - 1 ](https://www.dryanovo.bg/uploads/docs/9496_bg_%D0%97%D0%B0%D0%BF%D0%BE%D0%B2%D0%B5%D0%B4_%D0%9C%D0%B5%D1%81%D1%82%D0%B0%20%D0%B7%D0%B0%20%D0%BE%D0%B1%D1%8F%D0%B2%D1%8F%D0%B2%D0%B0%D0%BD%D0%B5%20%D0%BD%D0%B0%20%D0%BF%D1%80%D0%B5%D0%B4%D0%B2%D0%B0%D1%80%D0%B8%D1%82%D0%B5%D0%BB%D0%BD%D0%B8%20%D1%81%D0%BF%D0%B8%D1%81%D1%8A%D1%86%D0%B8.pdf)
 
-[Заповед № 87/02.03.2026 г. за определяне на местата за обявяване на предварителните избирателни списъци - 2 ](https://www.dryanovo.bg/uploads/docs/9497_bg_%D0%9F%D1%80%D0%B8%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5%201%20%D0%BA%D1%8A%D0%BC%20%D0%97%D0%B0%D0%BF%D0%BE%D0%B2%D0%B5%D0%B4%20%D0%BC%D0%B5%D1%81%D1%82%D0%B0%20%D1%81%D0%BF%D0%B8%D1%81%D1%8A%D1%86%D0%B8.pdf)
+- [Заповед № 87/02.03.2026 г. за определяне на местата за обявяване на предварителните избирателни списъци - 2 ](https://www.dryanovo.bg/uploads/docs/9497_bg_%D0%9F%D1%80%D0%B8%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5%201%20%D0%BA%D1%8A%D0%BC%20%D0%97%D0%B0%D0%BF%D0%BE%D0%B2%D0%B5%D0%B4%20%D0%BC%D0%B5%D1%81%D1%82%D0%B0%20%D1%81%D0%BF%D0%B8%D1%81%D1%8A%D1%86%D0%B8.pdf)
 
 ## Трявна
 
-[ИЗБОРИ ЗА НАРОДНИ ПРЕДСТАВИТЕЛИ НА 19 АПРИЛ 2026](https://tryavna.bg/aktualno/izbori/)
+- [ИЗБОРИ ЗА НАРОДНИ ПРЕДСТАВИТЕЛИ НА 19 АПРИЛ 2026](https://tryavna.bg/aktualno/izbori/)
 
-[Заповед №129 /27.02.2026 г. за определяне на местата за обявяване на избирателните списъци - 1](https://tryavna.bg/wp-content/uploads/2026/02/zapoved-mesta-za-obyavyavane-na-izb.-spisatsi.pdf)
+- [Заповед №129 /27.02.2026 г. за определяне на местата за обявяване на избирателните списъци - 1](https://tryavna.bg/wp-content/uploads/2026/02/zapoved-mesta-za-obyavyavane-na-izb.-spisatsi.pdf)
 
-[Заповед №129 /27.02.2026 г. за определяне на местата за обявяване на избирателните списъци - 2](https://tryavna.bg/wp-content/uploads/2026/02/prilozhenie-1-kam-zapoved-129.pdf)
+- [Заповед №129 /27.02.2026 г. за определяне на местата за обявяване на избирателните списъци - 2](https://tryavna.bg/wp-content/uploads/2026/02/prilozhenie-1-kam-zapoved-129.pdf)
 
-[Приложение №1 към заповед за образуване на избирателни секции на територията на Община Трявна](https://tryavna.bg/wp-content/uploads/2026/02/zapoved-Prilozhenie-1-obr.-na-sektsii.pdf)
+- [Приложение №1 към заповед за образуване на избирателни секции на територията на Община Трявна](https://tryavna.bg/wp-content/uploads/2026/02/zapoved-Prilozhenie-1-obr.-na-sektsii.pdf)
 
-[Заповед за образуване на избирателни секции на територията на Община Трявна](https://tryavna.bg/wp-content/uploads/2026/02/zapoved-sektsii-19.04.2026-g.pdf)
+- [Заповед за образуване на избирателни секции на територията на Община Трявна](https://tryavna.bg/wp-content/uploads/2026/02/zapoved-sektsii-19.04.2026-g.pdf)
 
-[Указ № 58 на Президента на Р. България за насрочване на предсрочни парламентарни избори на 19.04.2026 г. ](https://tryavna.bg/wp-content/uploads/2026/02/Ukaz-58.pdf)
+- [Указ № 58 на Президента на Р. България за насрочване на предсрочни парламентарни избори на 19.04.2026 г. ](https://tryavna.bg/wp-content/uploads/2026/02/Ukaz-58.pdf)
