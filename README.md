@@ -4,7 +4,7 @@
 
 [РЕШЕНИЕ № 13-НС - състав СИК Трявна](https://rik07.cik.bg/ns202604/decisions/13/2026-03-06)
 
-__5 Март 2026__ - [Покана за консултации за състав на секционни избирателни комисии](https://www.sevlievo.bg/bg/informatsiya-ot-obshtina-sevlievo/pokana-za-konsultatsii-za-sastav-na-sektsionni-izbiratelni-komisii)
+__5 Март 2026__ - [Севлиево - Покана за консултации за състав на секционни избирателни комисии](https://www.sevlievo.bg/bg/informatsiya-ot-obshtina-sevlievo/pokana-za-konsultatsii-za-sastav-na-sektsionni-izbiratelni-komisii)
 
 [Покана](https://www.sevlievo.bg/uploads/posts/2026/78c0c0601d78294493e2d52f56c7f849.pdf)
 
