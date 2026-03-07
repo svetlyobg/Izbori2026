@@ -6,7 +6,7 @@
 
 - [РЕШЕНИЕ № 4542-НС - регистрация на партия МЕЧ](https://www.cik.bg/bg/decisions/4542/2026-03-04)
 
-- [РЕШЕНИЕ № 13-НС - състав СИК Трявна](https://rik07.cik.bg/ns202604/decisions/13/2026-03-06)
+- [Трявна - РЕШЕНИЕ № 13-НС - Определяне броя на членовете на СИК](https://rik07.cik.bg/ns202604/decisions/13/2026-03-06)
 
 - [Дряново - Покана за консултации за сформиране на състава на Секционните избирателни комисии](https://www.dryanovo.bg/bg/article/6338/pokana-za-konsultatsii-za-sformirane-na-systava-na-sektsionnite-izbiratelni-komisii-1)
 
